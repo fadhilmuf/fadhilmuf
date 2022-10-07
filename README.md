@@ -1,1 +1,1 @@
-https://fadhilmuf.github.io/portfolio/
+https://fadhilmuf.github.io/port/
